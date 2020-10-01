@@ -1,2 +1,1 @@
-Web
 website faïence.com
