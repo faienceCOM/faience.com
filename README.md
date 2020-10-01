@@ -1,1 +1,1 @@
-website - [faïence.com](www.faïence.com)
+website - faïence.com
